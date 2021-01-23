@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+Just being happy and trying to be a little better every day :)
+
 <!--
 **jluo9612/jluo9612** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
