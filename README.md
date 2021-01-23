@@ -1,4 +1,4 @@
-### Hi there 👋
+### Greetings 👋
 
 Just being happy and trying to be a little better every day :)
 
